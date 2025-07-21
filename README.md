@@ -1,1 +1,74 @@
 # DIGITAL-MARKETING-TASK-3
+
+# DIGITAL-MARKETING-TASK-1
+
+**COMPANY** : CODTECH IT SOLUTIONS
+
+**NAME**: SINGAM MAHALAKSHMI
+
+**INTERN ID**: CT04DH703
+
+**DOMAIN** : DIGITAL MARKETING 
+
+**DURATION** : 4 WEEEKS 
+
+**MENTOR** : NELLA SANTOSH
+
+# DESCRIPTION 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
