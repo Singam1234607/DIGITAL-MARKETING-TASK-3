@@ -126,7 +126,7 @@ Digital Strategy Team
 
 ## OUTPUT
 
-
+[Strategic SEO Plan Document.docx](https://github.com/user-attachments/files/21368318/Strategic.SEO.Plan.Document.docx)
 
 
 
